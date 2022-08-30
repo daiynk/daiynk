@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @daiynk
+- I'm  ux/ui designer interested about front end and web projects
